@@ -1,0 +1,1 @@
+The data is collected without any approval of the news site for the assignment purpose only. No copyright to be claimed.
